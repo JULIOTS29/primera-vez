@@ -1,1 +1,5 @@
 # primera-vez
+
+EDITANDO
+
+REPAZANDO
